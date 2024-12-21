@@ -1,4 +1,6 @@
-Temu Download App for iPhone  Open the [APP STORE](https://app.temu.com/m/us8o075j4ki)
+Temu Download App for iPhone  
+
+Open the [APP STORE](https://app.temu.com/m/us8o075j4ki)
 
 With the rise of mobile commerce, apps like Temu have transformed the way we shop online. Known for its user-friendly interface, vast product catalog, and exclusive deals, Temu has quickly become a favorite among iPhone users. If you're looking to download and install the Temu app on your iPhone, this guide will help you get started.
 
